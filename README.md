@@ -1,0 +1,1 @@
+# 5-sinif-sosyal-bilgiler-yeni-nesil-defter-32
